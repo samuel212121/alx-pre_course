@@ -1,1 +1,1 @@
-My first readme
+the git is ousum i like it
